@@ -1,1 +1,1 @@
-# JeremiahZhang1201.github.io
+CS Club UI UX Design Final Project - Jeremiah Zhang
